@@ -11,6 +11,5 @@
   
 [carrd](https://yuujimegumi.carrd.co/#) [atabook](https://starlessworld.atabook.org) [strawpage](https://starlessworld.straw.page) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3wbi4psruxybvswb1rzq5hnau&cover_image=true&theme=novatorem&show_offline=false&background_color=0d1117&interchange=true&bar_color=1f2733&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![](https://komarev.com/ghpvc/?username=cursed-speech&color=393939&style=flat-square&label=ꔫ)
