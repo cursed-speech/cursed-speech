@@ -10,7 +10,7 @@
 <div align="center">
 <div align="center">
   
-[carrd](https://yuujimegumi.carrd.co/#) [atabook](https://starlessworld.atabook.org) [strawpage](https://starlessworld.straw.page) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
+[carrd](https://cursed-speech.carrd.co) [atabook](https://starlessworld.atabook.org) [strawpage](https://starlessworld.straw.page) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
 
 
 ![](https://komarev.com/ghpvc/?username=cursed-speech&color=393939&style=flat-square&label=ꔫ)
