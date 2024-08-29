@@ -8,6 +8,8 @@
 <img src="https://files.catbox.moe/uimdyu.png"/>
 </p>
 <div align="center">
+toge: ur my spaghetti bolognese,,, my sexy tuna casserole
+<div align="center">yuuta, in tears: i have Feelings for you
 <div align="center">
   
 [carrd](https://cursed-speech.carrd.co) [atabook](https://starlessworld.atabook.org) [strawpage](https://starlessworld.straw.page) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
