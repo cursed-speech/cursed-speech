@@ -12,7 +12,8 @@ toge: ur my spaghetti bolognese,,, my sexy tuna casserole
 <div align="center">yuuta, in tears: i have Feelings for you
 <div align="center">
   
-[carrd](https://cursed-speech.carrd.co) [atabook](https://starlessworld.atabook.org) [strawpage](https://starlessworld.straw.page) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
+[carrd](https://cursed-speech.carrd.co) [atabook](https://starpkmn.atabook.org) [strawpage](https://starpkmn.straw.page) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
+
 
 
 ![](https://komarev.com/ghpvc/?username=cursed-speech&color=393939&style=flat-square&label=ꔫ)
