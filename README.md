@@ -13,7 +13,8 @@ toge: ur my spaghetti bolognese,,, my sexy tuna casserole
 <div align="center">
 
   
-[carrd](https://cursed-speech.carrd.co) [atabook](https://starpkmn.atabook.org) [strawpage](https://starpkmn.straw.page) [walloftext](https://walloftext.co/starpkm) [stamps](https://github.com/m4inecoons/bobtail/blob/main/README.md)
+[guns](https://guns.lol/starpkmn) [atabook](https://starpkmn.atabook.org) [strawpage](https://starpkmn.straw.page) [walloftext](https://walloftext.co/starpkm) 
+
 
 
 ![](https://64.media.tumblr.com/7c1e8d3ca83c95e823d73df835e9946e/6a6f2dcb3aedc262-01/s100x200/5f59112dbbf4c51983059d3ae8196a5a4c2b6173.gifv)
