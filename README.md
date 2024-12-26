@@ -8,7 +8,7 @@
 
 <div align="center"> 
  
-<sup>[**rentry**](https://rentry.co/COWGlRL)⠀⠀✦⠀⠀[**atabook**](https://soulripper.atabook.org/)⠀⠀✦⠀⠀[**guns.lol**](https://guns.lol/soulripper)</sub></sup>
+<sup>[**rentry**](https://rentry.co/starpkm)⠀⠀✦⠀⠀[**atabook**](https://starpkmn.atabook.org)⠀⠀✦⠀⠀[strawpage](https://starpkmn.straw.page)</sub></sup>
 
 <div align="center"> 
   
